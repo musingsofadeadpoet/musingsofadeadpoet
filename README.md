@@ -6,4 +6,4 @@ some trivial facts about me! i'm a typography/typeface enthusiast and a caffeine
 
 i'm always happy to talk/connect~ you can reach me at na_nguyen@brown.edu (school) / xnanguyen@gmail.edu (work) 🌱🧝🏻‍♀️
 
-p/s: i'm currently in the process of moving my gitub repos from my old personal and .edu accounts, so this profile might look a bit messy! i apologize for the inconvenience and i will try my best to finish it asap {{ (>_<) }} thank you for your patience <3
+p/s: i'm currently in the process of moving my gitub repos from my old personal and .edu accounts, so this profile might look a bit messy! i apologize for the inconvenience and will try my best to finish it asap {{ (>_<) }} thank you for your patience <3
